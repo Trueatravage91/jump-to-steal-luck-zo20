@@ -1,4 +1,4 @@
-
+secure Scripts for jump to steal lucky blocks offers the most advanced jump to steal lucky blocks Script, with teleport and unlimited stamina.
 
 
 
